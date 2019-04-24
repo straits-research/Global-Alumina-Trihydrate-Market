@@ -1,0 +1,2 @@
+# Global-Alumina-Trihydrate-Market
+Alumina trihydrate marketplace is pushed by strict guidelines imposed by way of governments of diverse countries on the usage of flame retardants in furniture and creation sports. The market is likewise driven by using a boom in the call for alumina trihydrate from the flame retardant plastics in the automotive industry and the water treatment industry. furthermore, call for alumina trihydrate is high from the paints, coating, and paper industries due to its fee effectiveness. that is a key element using the alumina trihydrate market.
